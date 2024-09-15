@@ -2,8 +2,10 @@
 
 [Telegram Web](https://web.telegram.org/)
 
-## Telegram Group
+## 📢 Whatsapp Group
 
-Join our Telegram group to stay updated and get instructions on how to use this tool:
+Join our Whatsapp group to stay updated and get instructions on how to use this tool:
 
-[Smart Airdrop](https://t.me/smartairdrop2120)
+- [Legit Crypto Airdrop](https://chat.whatsapp.com/I510IxGK3dYFOOJGVtkdsT)
+
+Credits Goes to Smart Airdrops
